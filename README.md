@@ -7,6 +7,8 @@ Töten und Gewalt im Straßenverkehr (und sonstwo) müssen beendet werden.
 
 gez. Wikinaut
 
+PS: Bitte ggfs. selbst veröffentlichen, ggfs. anpassen, nicht einfach verlinken.
+
 ### Links
 * https://github.com/Wikinaut/PolitischesTestament
 * https://berlin.social/@wikinaut/109432634926086774
