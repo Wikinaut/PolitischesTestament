@@ -4,6 +4,7 @@ Falls ich durch Auto-/Lkw-/Busfahrer oder anderen Verkehrsteilnehmer (m/w/d) umk
 
 Töten und Gewalt im Straßenverkehr (und sonstwo) müssen beendet werden.
 
+Ich verbitte mir #victimblaming der Medien.
 
 gez. Wikinaut
 
