@@ -1,5 +1,4 @@
 Mein #PolitischesTestament:  
-https://github.com/Wikinaut/PolitischesTestament
 
 Falls ich durch Auto-/Lkw-/Busfahrer oder anderen Verkehrsteilnehmer (m/w/d) umkomme, dürft Ihr meinen Tod gnadenlos für alle Zwecke Richtung #VisionZero instrumentalisieren!
 
@@ -10,5 +9,6 @@ gez. Wikinaut
 
 ### Links
 * https://github.com/Wikinaut/PolitischesTestament
+* https://berlin.social/@wikinaut/109432634926086774
 * https://chaos.social/@wikinaut/109270191283535702
 * https://twitter.com/Wikinaut/status/1588141246840807426
