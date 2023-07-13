@@ -4,7 +4,7 @@ Falls ich durch Auto-/Lkw-/Busfahrer oder anderen Verkehrsteilnehmer (m/w/d) umk
 
 Töten und Gewalt im Straßenverkehr (und sonstwo) müssen beendet werden.
 
-Ich verbitte mir #victimblaming der Medien.
+Ich verbitte mir #Victimblaming oder #Verantwortungsdiffusion ("verletzte sich tödlich" ohne Nennung eines Täters) der Medien.
 
 gez. Wikinaut
 
